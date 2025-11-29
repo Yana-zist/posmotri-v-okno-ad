@@ -1,1 +1,1 @@
-https://github.com/Yana-zist/ono-tebe-nado-ad
+https://github.com/Yana-zist/posmotri-v-okno-ad
